@@ -1,3 +1,12 @@
+# Excited about the new semester ☺
+## Fengyuan Shen
+
+
+
+
+
+
+
 # :wave: The Basics of GitHub 
 
 ## 🤓 Course overview and learning outcomes 
